@@ -1,4 +1,4 @@
-[Sertifikat_MIRZA UCHMAL GANI_Fundamental of Assistant Web Developer - DEX - Universitas Jember.pdf](https://github.com/user-attachments/files/35012891/Sertifikat_MIRZA.UCHMAL.GANI_Fundamental.of.Assistant.Web.Developer.-.DEX.-.Universitas.Jember.pdf)# Hasil-Program-Digitalent-Komdigi
+# Hasil-Program-Digitalent-Komdigi
 
 Nama : Mirza Uchmal Gani
 <br>
